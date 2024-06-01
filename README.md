@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MEightofficial
+- 👋 Hi, I’m Mayur
 - 👀 I’m interested in Programing
 - 🌱 I’m currently learning New Langauges & Ethical Hacking
 - 💞️ I’m looking to collaborate on Developing Interested Peoples 
